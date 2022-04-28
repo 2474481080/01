@@ -1,4 +1,4 @@
-畅联最新官网地址：https://clyu.pro
+畅联最新官网地址：https://clyun.pro
 
 
 特殊时期  节点地址可能变更 
