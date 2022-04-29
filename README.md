@@ -1,6 +1,6 @@
 畅联最新官网地址：https://clyun.pro
 
-备用域名clyun.men
+。备用域名：clyun.men
 
 特殊时期  节点地址可能变更 
 
