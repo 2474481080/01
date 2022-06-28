@@ -1,6 +1,6 @@
 畅联最新官网地址：clyun.vip  （原来的clyun.pro clyun.men现已无法正常访问）
 
-。备用域名：clyun.men
+。备用域名：
 
 特殊时期  节点或官网地址可能变更
 
